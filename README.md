@@ -14,4 +14,5 @@
 
 Note : Mình sẽ không Share Trick Reg tài khoản ra bên ngoài ,sự nhiệt tình và tử tế luôn đến từ cái tâm - vì cộng đồng , các bạn vui là mình cũng vui sau một ngày làm việc căng thẳng mệt mỏi ,  nên các bạn có hỏi mình bán Trick hay Mua rẻ cho Seller sẽ không rep đâu ạ (Mình BLOCK thẳng luôn nhé !). Cảm ơn , chúc mọi người một ngày làm việc hiệu quả và hạnh phúc !
 
-![image](https://github.com/IT-Udemy-Trick-Reg/Cookie-Udemy/assets/24869201/82c6fc75-cf6b-45f0-8997-0d1233cf9fc8)
+![image](https://github.com/jinzoo28032000/Cookie-Udemy/assets/152149733/5327c177-69e5-4095-a7c8-082625aa3361)
+
