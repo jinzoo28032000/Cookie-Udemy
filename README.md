@@ -12,7 +12,8 @@
 
 4 . Link nhận Support : [***Here***](https://www.facebook.com/photo?fbid=3330306193873101&set=a.1387699194800487)
 
-Note : Mình sẽ không Share Trick Reg tài khoản ra bên ngoài ,sự nhiệt tình và tử tế luôn đến từ cái tâm - vì cộng đồng , các bạn vui là mình cũng vui sau một ngày làm việc căng thẳng mệt mỏi ,  nên các bạn có hỏi mình bán Trick hay Mua rẻ cho Seller sẽ không rep đâu ạ (Mình BLOCK thẳng luôn nhé !). Cảm ơn , chúc mọi người một ngày làm việc hiệu quả và hạnh phúc !
+Note : Mình vẫn nhân Dịch vụ Facebook - TikTok - Instagram (Like, Follow , Commen, Buff Member Group) . Nhận Get khoá học Udemy Học Online đồng giá 100K .
+Combo "VIP MEMBER 800K" - hỗ trợ Get các khoá trong Account Plan Persional Udemy này (Support Get không tính thêm phí ) + Tặng slot Google Drive 2TB miễn phí !
 
 ![image](https://github.com/jinzoo28032000/Cookie-Udemy/assets/152149733/5327c177-69e5-4095-a7c8-082625aa3361)
 
