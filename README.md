@@ -3,6 +3,7 @@
 ***𝐴𝑐𝑐𝑜𝑢𝑛𝑡 𝑈𝐷𝐸𝑀𝑌 𝑃𝐸𝑅𝑆𝐼𝑂𝑁𝐴𝐿 𝑃𝐿𝐴𝑁 7 𝐷𝑎𝑦𝑠***
 
 **#Infor và Hướng dẫn sử dụng!#**
+0 . TUYỆT ĐỐI KHÔNG LOGOUT TÀI KHOẢN TRÁNH MẤT COOKIE - COOKIE HẾT HẠN NHẮN MÌNH UPDATE - MUỐN XEM KHÔNG HẾT HẠN THÌ MUA KHOÁ HỌC LIÊN HỆ MÌNH TƯ VẤN !
 
 1 . Link Facebook mình : [***Here***](https://www.facebook.com/N.V.D.2803/)
 
